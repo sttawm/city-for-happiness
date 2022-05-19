@@ -9,4 +9,4 @@ A city designed around happiness
 * Lots of parks
 * Lots of green
 * Clean public bathrooms
-* Health-care for all (and a city-specific tax system)
+* Health-care for all (no f**cking taxes!)
